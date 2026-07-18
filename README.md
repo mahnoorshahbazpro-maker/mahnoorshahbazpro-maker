@@ -33,5 +33,9 @@ I am looking for remote opportunities as a Data Entry Specialist, Virtual Assist
 
 Email: [mahnoorshahbaz.pro@gmail.com](mailto:mahnoorshahbaz.pro@gmail.com)
 
+## 🔗 LinkedIn
+
+https://www.linkedin.com/in/mahnoor-shahbaz-a4960a422/
+
 Thank you for visiting my GitHub profile!
 
